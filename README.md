@@ -5,4 +5,4 @@ It totally is
 
 Not crafting doesn't make you a bad person
 
-Crocheting is weird.
+Crocheting is special.
